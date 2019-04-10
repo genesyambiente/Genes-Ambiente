@@ -11,17 +11,17 @@ Dr Genes Ambiente (Profesor Responsable)
 Tfno +34 34 34 343  
 email : interaccion@ucor.es     
 
-Dr Genes Ambiente (Profesor Responsable)  
+Dr Genes Ambiente  
 Tfno +34 34 34 343  
 email : interaccion@ucor.es 
 
 
-Dr Genes Ambiente (Profesor Responsable)  
+Dr Genes Ambiente  
 Tfno +34 34 34 343  
 email : interaccion@ucor.es 
 
 
-Dr Genes Ambiente (Profesor Responsable)  
+Dr Genes Ambiente  
 Tfno +34 34 34 343  
 email : interaccion@ucor.es 
 
